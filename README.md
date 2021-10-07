@@ -1,1 +1,1 @@
-Please, smash like and subscribe to my (https://www.youtube.com/channel/UCzs8ZkLETDxh87w76uB-M4A)[Youtube Channel].
+Please, smash like and subscribe to my [Youtube Channel](https://www.youtube.com/channel/UCzs8ZkLETDxh87w76uB-M4A).
